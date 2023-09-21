@@ -9,8 +9,7 @@ I work mostly alone, "open to suggestions"
 How can I be contacted:
 Telegram - https://t.me/Fok322
 Vk - https://vk.com/fok322
-Gmail - art.mem99@gmail.com 
-- только блядский гений оставит что-то личное
+
 
 
 <!---
